@@ -1,4 +1,4 @@
-## Hi there 👋 Wer are a research group located at the EKFZ @ TU Dresden
+## Hi there 👋 We are a research group located at the EKFZ @ TU Dresden
 
 **Wait for more ...**
 <!--
